@@ -1,1 +1,1 @@
-good good study,day day up
+悟以往之不谏 知来者之可追
